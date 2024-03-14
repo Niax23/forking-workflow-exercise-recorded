@@ -15,7 +15,7 @@
 - **Crusty bread** for serving
 
 
-## Instroctions
+## Instructions
 
 1. **Sauté the Vegetables:**
    - Heat the olive oil in a pot over medium heat. Add the onions, salt and pepper
