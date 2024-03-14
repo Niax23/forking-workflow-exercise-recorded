@@ -34,4 +34,4 @@
 ## Baking
 
 - 15 min at 425 F (220 C)
-- 40-50 min at 350 F (180)
+- 40-50 min at 350 F (180 C)
