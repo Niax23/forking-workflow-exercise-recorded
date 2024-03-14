@@ -4,12 +4,12 @@
 ## Ingredients
 
 - **9-12** no-boil lasagna noodles
-- **1** large jar (about 24 oz) of marinara sauce
-- **15 oz** ricotta cheese
+- **1** large jar (about 24 oz or 700 ml) of marinara sauce
+- **15 oz (425 g)** ricotta cheese
 - **1** egg
-- **1/2 cup** grated Parmesan cheese
-- **2 cups** shredded mozzarella cheese
-- **1 lb** fresh spinach, rinsed and chopped (or use frozen spinach, thawed and drained)
+- **1/2 cup (50 g)** grated Parmesan cheese
+- **2 cups (200 g)** shredded mozzarella cheese
+- **1 lb  (450 g)** fresh spinach, rinsed and chopped (or use frozen spinach, thawed and drained)
 - **1** medium zucchini, thinly sliced
 - **1** bell pepper, diced
 - **1** small onion, diced
