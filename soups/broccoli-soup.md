@@ -5,7 +5,7 @@
 - 2 cloves of garlic
 - one onion
 - 2 bouillon cubes
-- 1 can of chickpeas
+- 1 can of chickpeas, drained
 - 800 mL water
 - one big splash of oat cream
 - Olive oil
